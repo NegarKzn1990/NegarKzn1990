@@ -1,3 +1,6 @@
+¯\_( ͡ᵔ ͜ʖ ͡ᵔ)_/¯  
+
+  🅽🅴🅶🅰🆁
 - 👋 Hi, I’m @NegarKzn1990
 - 👀 I’m interested in Js | Python & Django
 - 🌱 I’m currently learning Js | Python & Django
